@@ -1,8 +1,5 @@
 ### Heyy I'm Hassan 👋
 I'm a 16-year-old developer , and I'm passionate about learning new stuff and learning from experience.
-<!--
-**Hassan-Moussa/Hassan-Moussa** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
 _________________________________________________________
 - 🌱 I’m currently learning Frontend development 
 _________________________________________________________

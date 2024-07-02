@@ -5,6 +5,6 @@ _________________________________________________________
 _________________________________________________________
 -  ✨ Fun facts :
 
-•	Jujutsu Kaisen is my favourite anime
+•	Aot is my favourite anime
 
 •	I got into coding in 2020 but I couldn't learn and learned coding in 2023

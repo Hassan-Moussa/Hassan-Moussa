@@ -1,7 +1,7 @@
 ### Heyy! I'm Hassan 👋
 I'm a 16-year-old developer , and I'm passionate about learning new stuff and learning from experience.
 _________________________________________________________
-- 🌱 I’m currently learning Frontend development such as React
+- 🌱 I’m currently trying to learn more about AI
 _________________________________________________________
 -  ✨ Fun facts :
 

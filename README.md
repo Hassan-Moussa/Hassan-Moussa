@@ -7,6 +7,6 @@ _________________________________________________________
 
 •	Aot is my favourite anime
 
-•	I got into coding in 2020 but I couldn't learn and learned coding in 2023
+•	I got into coding in 2020 but I couldn't learn until 2023
 
 • I love playing video games such as re7 and re village 

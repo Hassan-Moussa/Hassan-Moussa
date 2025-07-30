@@ -5,8 +5,9 @@ _________________________________________________________
 _________________________________________________________
 -  ✨ Fun facts :
 
-•	Aot is my favourite anime
+•	Takopi no genzai is my favourite anime
 
 •	I got into coding in 2020 but I couldn't learn until 2023
 
 • I love playing video games such as re7 and re village 
+ 
